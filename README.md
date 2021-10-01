@@ -1,2 +1,2 @@
-#  👩‍💻 Andrea ✨
-Hi, it's me! 
+#  👩‍💻 Hi, it's me (Andrea)! ✨
+
